@@ -1,0 +1,2 @@
+# VinayakTeradali.github.io
+Profile
